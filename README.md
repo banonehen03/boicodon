@@ -1,2 +1,2 @@
 # boicodon
-không có gì
+yêu tất cả các em
